@@ -3,11 +3,9 @@ permalink: /about/
 title: "About"
 ---
 
-*Trinity Reformed Fellowship is a ministry of [Trinity Reformed Church](https://trinityreformed.org), a Reformed Protestant church located on the west side of Bloomington, Indiana. We have lively worship on Sunday mornings and regular lunches for students after church. We love the Bible, and we aim to love like Jesus. Please [get in touch](https://trinityreformed.churchcenter.com/people/forms/284770) if you'd like a ride!*
+*Trinity Reformed Fellowship exists to reach students on the campus of Indiana University with the love of Jesus. We are a ministry of [Trinity Reformed Church](https://trinityreformed.org), a Reformed Protestant church located on the west side of Bloomington, Indiana. We have lively worship on Sunday mornings and regular lunches for students after church. Please [get in touch](https://trinityreformed.churchcenter.com/people/forms/284770) if you'd like a ride!*
 
-*The best way to get to know us is to join us for worship on a Sunday morning or for a college group Bible study on Wednesdays during the school year at 7pm at the IMU. We hope you will! But what you'll find below are answers to some basic questions about who we are and what we believe.* 
-
-*[Click here](/welcome) for a more thorough introduction to this website.*
+*The best way to get to know us is to join us for worship on a Sunday morning or for a college group Bible study on Wednesdays during the school year at 7pm at the IMU. We hope you will! Below are answers to some basic questions about who we are and what we believe.* 
 
 -----------------
 
@@ -43,7 +41,7 @@ So a presbyterian church is governed by a group of elders within that church. Th
 
 But unlike *congregational* churches which are not generally answerable to any other church or institution, a church under the presbyterian system of government is answerable to their *presbytery*. A presbytery consists of the pastors and elders of multiple churches who work together for one another's mutual benefit. In our case, our pastors and elders are members of [Evangel Presbytery](https://evangelpresbytery.com).
 
-## How is Evangel Presbytery different from other presbyterian denominations (i.e. PCA)?
+## How is Evangel Presbytery different from other presbyterian denominations?
 
 Evangel Presbytery strives to be "boringly normal" when compared to historic, American presbyterianism. The main difference between Evangel and most other presbyterian denominations is its commitment to freedom on the question of time and mode of baptism. Over the years, however, more churches and denominations have adopted a similar position, so this has become even less of a distinction.
 
