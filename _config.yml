@@ -62,7 +62,7 @@ author:
   avatar : "/assets/images/logo.png"
   bio    : "A ministry of Trinity Reformed Church to the campus of Indiana University."
   links:
-    - label: "Website"
+    - label: "JesusAtIU"
       icon: "fas fa-fw fa-link"
       url: "https://jesusatiu.com"
 
