@@ -1,9 +1,9 @@
 main:
-  - title: "Posts"
-    url: /posts/
-  - title: "Categories"
-    url: /categories/
-  - title: "Tags"
-    url: /tags/
+  - title: "Who"
+    url: /who/
   - title: "About"
     url: /about/
+  - title: "Beliefs"
+    url: /beliefs/
+  - title: "Contact"
+    url: https://trinityreformed.churchcenter.com/people/forms/284770

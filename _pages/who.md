@@ -5,4 +5,4 @@ title: "Who"
 
 ## Who We Are
 
-![[lucas.jpeg]]
+![Lucas](../assets/images/lucas.jpeg)

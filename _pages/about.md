@@ -3,21 +3,9 @@ permalink: /about/
 title: "About"
 ---
 
-*Trinity Reformed Fellowship exists to reach students on the campus of Indiana University with the love of Jesus. We are a ministry of [Trinity Reformed Church](https://trinityreformed.org), a Reformed Protestant church located on the west side of Bloomington, Indiana. We have lively worship on Sunday mornings and regular lunches for students after church. Please [get in touch](https://trinityreformed.churchcenter.com/people/forms/284770) if you'd like a ride!*
+Trinity Reformed Fellowship exists to reach students on the campus of Indiana University with the love of Jesus. We are a ministry of [Trinity Reformed Church](https://trinityreformed.org), a Reformed Protestant church located on the west side of Bloomington, Indiana. We have lively worship on Sunday mornings and regular lunches for students after church. Please [get in touch](https://trinityreformed.churchcenter.com/people/forms/284770) if you'd like a ride!
 
-*The best way to get to know us is to join us for worship on a Sunday morning or for a college group Bible study on Wednesdays during the school year at 7pm at the IMU. We hope you will! Below are answers to some basic questions about who we are and what we believe.* 
-
------------------
-
-## How do you believe we get saved?
-
-To answer that question, we have to start at the beginning. God made us, and so He rules over us. We belong to Him. Unfortunately, we are all born with a desire to live as if God doesn't exist. We want to go our own way and to do whatever pleases us. The Bible calls this rebellion against God "sin".
-
-God is perfectly good, and so He condemns us for our sin. We live under God's judgement *now* as a result of our sin, and without a miraculous rescue, we will be condemned to Hell *eternally* when we die. To "get saved" means to be saved from the wrath of God.
-
-God loves the world He created, and so He sent His own divine Son – the man, Jesus Christ – into the world to save us. Unlike us, Jesus lived a perfect, sinless life. He didn't rebel against God, but he was tortured and executed on a Roman cross as a *substitute* for us. God accepted Jesus' death as payment for our sins and vindicated him by raising him from the dead. Because Jesus died in our place, we can be forgiven for our sins.
-
-So how do we "get saved"? By turning to God in humility and asking for forgiveness for our rebellion against Him. That's for starters. Then we trust in Jesus as our resurrected ruler and savior. We trust His promise that we are freely and completely forgiven in Him. And then we go on to live the rest of our lives with Jesus as our Lord.
+The best way to get to know us is to join us for worship on a Sunday morning or for a college group Bible study on Wednesdays during the school year at 7pm at the IMU. We hope you will! Below are answers to some basic questions about who we are and what we believe.
 
 ## What does “reformed” mean?
 
@@ -44,9 +32,3 @@ But unlike *congregational* churches which are not generally answerable to any o
 ## How is Evangel Presbytery different from other presbyterian denominations?
 
 Evangel Presbytery strives to be "boringly normal" when compared to historic, American presbyterianism. The main difference between Evangel and most other presbyterian denominations is its commitment to freedom on the question of time and mode of baptism. Over the years, however, more churches and denominations have adopted a similar position, so this has become even less of a distinction.
-
-Many once-faithful churches and denominations drift away from Christ and His Word. This pattern has been repeated many times in the history of Christ's church, and it is going on today in many of our nation's churches. And so, by faith, the churches of Evangel Presbytery have started a new work to pick up where others have left off.
-
-## What does your church believe about baptism?
-
-Baptism is a sacrament—a visible, external sign of an invisible, inward reality. Specifically, God tells us that in baptism we are buried with Christ and united with Him in His death, and that we are raised up with Him to newness of life, just as He rose from the dead. Just as water cleanses our bodies from filth, the water of baptism represents our being washed from sin by the cleansing power of the Holy Spirit within us. Physical baptism itself does not save us, but only the inward spiritual reality that it represents.
