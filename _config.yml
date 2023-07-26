@@ -59,7 +59,7 @@ plugins:
 
 author:
   name   : "Trinity Reformed Fellowship"
-  avatar : "/assets/images/logo_sm.png"
+  avatar : "/assets/images/logo.png"
   bio    : "A ministry of Trinity Reformed Church to the campus of Indiana University."
   links:
     - label: "Website"
