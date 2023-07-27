@@ -7,7 +7,7 @@ title: "Who"
 
 ![Lucas](../assets/images/lucas.jpeg)
 
-My name is Lucas Weeks, and I'm the college pastor at [Trinity Reformed Church](https://trinityreformed.org). I'm married to Hannah. It's the best. We a houseful of kids, which makes getting out the door for school in the morning quite a challenge.
+My name is Lucas Weeks, and I'm the college pastor at [Trinity Reformed Church](https://trinityreformed.org). I'm married to Hannah. It's the best. We have a houseful of kids, which makes getting out the door for school in the morning quite a challenge.
 
 I graduated from Indiana University with a BA in International Studies and a minor in biology. I had intended to try for medical school, but I fell in love with Christ's bride, the church, and decided to give my life to serving her. I trained to become a pastor at Clearnote Pastors College, now called [New Geneva Academy](https://www.newgenevaacademy.com).
 
