@@ -63,9 +63,15 @@ author:
   avatar : "/assets/images/logo.png"
   bio    : "A ministry of Trinity Reformed Church to the campus of Indiana University."
   links:
-    - label: "https://jesusatiu.com"
+    - label: "Trinity Reformed Church"
       icon: "fas fa-fw fa-link"
-      url: "https://jesusatiu.com"
+      url: "https://trinityreformed.org"
+    - label: "Warhorn Media"
+      icon: "fas fa-fw fa-link"
+      url: "https://warhornmedia.com"
+    - label: "I need a ride!"
+      icon: "fas fa-fw fa-link"
+      url: "https://trinityreformed.churchcenter.com/people/forms/284770"
 
 footer:
 #  links:
