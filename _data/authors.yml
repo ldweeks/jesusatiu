@@ -5,18 +5,15 @@ Lucas Weeks:
   bio         : "He had made many pilgrims princes, though by nature they were beggars born…"
   avatar      : "/assets/images/bio-lucas.jpg"
   links:
-    - label: "Email"
+    - label: "Let me know what you think!"
       icon: "fas fa-fw fa-envelope-square"
       url: "mailto:lucas@trinityreformed.org"
-    - label: "Website"
-      icon: "fas fa-fw fa-link"
-      url: "https://jesusatiu.com"
 
 Jacob Gonzales:
   name        : "Jacob Gonzales"
   bio         : "Add bio here"
   avatar      : "/assets/images/bio-jacob.jpg"
   links:
-    - label: "Email"
+    - label: "Contact me!"
       icon: "fas fa-fw fa-envelope-square"
       url: "mailto:college@trinityreformed.org"
