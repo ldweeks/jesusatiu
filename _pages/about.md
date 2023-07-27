@@ -3,6 +3,8 @@ permalink: /about/
 title: "About"
 ---
 
+![Trinity Reformed Church Sign](../assets/images/trc_sign.jpeg)
+
 Trinity Reformed Fellowship exists to reach students on the campus of [Indiana University](https://bloomington.iu.edu) with the love of Jesus. We are a ministry of [Trinity Reformed Church](https://trinityreformed.org), a Reformed Protestant church located on the west side of Bloomington, Indiana. We have lively worship on Sunday mornings and regular lunches for students after church. 
 
 Please [get in touch](https://trinityreformed.churchcenter.com/people/forms/284770) if you'd like a ride!
