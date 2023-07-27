@@ -3,13 +3,11 @@ permalink: /jesus/
 title: "Jesus"
 ---
 
-## Who is Jesus?
-
 The Bible says this about Jesus:
 
 > In the beginning was the Word, and the Word was with God, and the Word was God... And the Word became flesh, and dwelt among us, and we saw His glory, glory as of the only begotten from the Father, full of grace and truth.
 
-Though Jesus was killed and buried two thousand years ago, he rose from the dead and lives today. He will return to judge the world:
+Though Jesus was murdered and buried two thousand years ago, he rose from the dead and lives today. He will return to judge the world:
 
 > Therefore having overlooked the times of ignorance, God is now declaring to men that all people everywhere should repent, because He has fixed a day in which He will judge the world in righteousness through a Man whom He has appointed, having furnished proof to all men by raising Him from the dead.
 
