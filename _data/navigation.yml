@@ -5,5 +5,7 @@ main:
     url: /about/
   - title: "Beliefs"
     url: /beliefs/
+  - title: "Events"
+    url: /events/
   - title: "Contact"
     url: https://trinityreformed.churchcenter.com/people/forms/284770
