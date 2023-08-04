@@ -22,3 +22,23 @@ The reformers trusted the words of the Bible when it was very unpopular to do so
 ## What is Trinity Reformed Church all about?
 
 To learn more about Trinity Reformed Church, please check out the "[What We Believe](https://trinityreformed.org/about/what-we-believe/)" page on our website.
+
+## What is Evangel Presbytery?
+
+Evangel Presbytery is an association of reformed churches which was formed in June, 2019. Trinity Reformed Church is a founding member. To read more about Evangel's commitments, please [click here](https://evangelpresbytery.com/our-commitments/).
+
+## What is a "presbytery"?
+
+The word "presbytery" refers to the way a church is governed. It comes from the Koine Greek word *presbyteros* which means "elder". An example from Scripture can be found in 1 Timothy 5:17:
+
+> The elders (*presbyteros*) who rule well are to be considered worthy of double honor, especially those who work hard at preaching and teaching.
+
+So a presbyterian church is governed by a group of elders within that church. That group of elders includes all the local pastors actively working in that congregation (often referred to as *teaching elders*) and the non-ordained, lay elders.
+
+But unlike *congregational* churches which are not generally answerable to any other church or institution, a church under the presbyterian system of government is answerable to their *presbytery*. A presbytery consists of the pastors and elders of multiple churches who work together for one another's mutual benefit. In our case, our pastors and elders are members of [Evangel Presbytery](https://evangelpresbytery.com).
+
+## How is Evangel Presbytery different from other presbyterian denominations?
+
+Evangel Presbytery strives to be "boringly normal" when compared to historic, American presbyterianism. The main difference between Evangel and most other presbyterian denominations is its commitment to freedom on the question of time and mode of baptism. Over the years, however, more churches and denominations have adopted a similar position, so this has become even less of a distinction.
+
+Many once-faithful churches and denominations drift away from Christ and His Word. This pattern has been repeated many times in the history of Christ's church, and it is going on today in many of our nation's churches and denominations. And so, by faith, the churches of Evangel Presbytery have started a new work to pick up where others have left off.
