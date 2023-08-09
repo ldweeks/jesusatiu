@@ -3,7 +3,7 @@ permalink: /jesus/
 title: "Jesus"
 ---
 
-The Bible says this about Jesus:
+The Bible teaches that God became a man and walked among us. That man was Jesus:
 
 > In the beginning was the Word, and the Word was with God, and the Word was God... And the Word became flesh, and dwelt among us, and we saw His glory, glory as of the only begotten from the Father, full of grace and truth.
 
