@@ -37,8 +37,6 @@ So a presbyterian church is governed by a group of elders within that church. Th
 
 But unlike *congregational* churches which are not generally answerable to any other church or institution, a church under the presbyterian system of government is answerable to their *presbytery*. A presbytery consists of the pastors and elders of multiple churches who work together for one another's mutual benefit. In our case, our pastors and elders are members of [Evangel Presbytery](https://evangelpresbytery.com).
 
-## How is Evangel Presbytery different from other presbyterian denominations?
+## What about...?
 
-Evangel Presbytery strives to be "boringly normal" when compared to historic, American presbyterianism. The main difference between Evangel and most other presbyterian denominations is its commitment to freedom on the question of time and mode of baptism. Over the years, however, more churches and denominations have adopted a similar position, so this has become even less of a distinction.
-
-Many once-faithful churches and denominations drift away from Christ and His Word. This pattern has been repeated many times in the history of Christ's church, and it is going on today in many of our nation's churches and denominations. And so, by faith, the churches of Evangel Presbytery have started a new work to pick up where others have left off.
+We'd love the chance to chat with you about any and all questions you might have! Please [get in touch](https://trinityreformed.churchcenter.com/people/forms/284770)!
