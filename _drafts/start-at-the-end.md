@@ -15,36 +15,48 @@ tags:
 > 
 > Ecclesiastes 7:2
 
-Welcome to Indiana University! Whether you are a freshman this year or a grizzled old senior, I hope you're excited to be back in Bloomington and back at IU.
+Welcome to Indiana University! Whether you are a freshman this year or a grizzled old senior, I hope you're excited to be back in Bloomington and back at IU. There are many good reasons to attend college, and there are many good reasons to come to Indiana University. But before classes begin, you should ask yourself an important question: why are *you* here?
 
-College is a right of passage in our day that is filled with excitement. The world is new and fresh. Many are away from home for the first time, and you have an opportunity to make yourself. Everything is fresh and new and exciting, and you're around other young people who genererally see the world with the same kind of hope and optimism.
+They say that the time and money necessary to attend college is an investment in your future. You're young and you lack experience and knowledge, but you're full of hope and possibilities. That all sounds good, but what is that future you seek? What's the goal? Where are you headed?
 
-So what would I say to you? What advice would I give you?
+Nearly 90% of the undergraduate students at IU last spring were between 18 and 24 years old. It's very rare for an 18 year old arriving to college as a freshman to be thinking much past the next four years. Many students get caught with the mythological American "college life" of parties and sex and basketball games.
 
-Start at the end, and work your way backwards. The youth think they are invincible, and that they will go on forever. But there is a joke at the end of this ride. (Stick with me here, it's about to get bumpy...)
+But you must think beyond that. College should not be the high point of your life. Where are you headed after college?
 
-You, and everyone you know, will die one day. Few people will remember you when you've been dead for fifty years - no one will remember you after one hundred years. And yet, if the Lord tarries, the planet will continue to spin and everyone else will go on with their life just fine without you.
+The way to answer that question is to start at the end, and work your way backwards. You want the American dream? Then with the right degree and the right connections, four or five years at IU could be the ticket to a white collar job with four weeks of vacation and a six-digit salary. And then, after putting in 30-40 years of work, you can retire and travel the world.
+
+Is that as far as your thinking goes? If so, you're not thinking far enough ahead. 
+
+When we're young, we have a hard time imaging the distant future. Whether we think about it consciously or not, we *act* as if we will live forever. But if we are wise, we will wake up to the fact that after all the thrills and pleasures and wonders of this life, there is a sick joke at the end of it all. There is a surprise ending.
+
+You, and everyone you know, will die one day. Few people will remember you when you've been dead for fifty years; no one will remember you after one hundred years. And yet, if the Lord tarries, the planet will continue to spin and everyone else will go on with their lives without you.
 
 To make the most of college, you have to think about where you're headed. To make the most of life, you must think carefully about your death.
 
-MORE ABOUT DEATH AS AN ANVIL.
+What is death? 
 
-WHAT IS DEATH, ANYWAY? IS IT THE END? A PASSAGE? A RECURRING THING? NO, IT IS:
+Is it simply the end, like most of the atheists and naturalists believe? Like a sick punch line at the end of an extended joke?
 
-The Bible says it is appointed for men to die once and then to face the judgment. (Hebrews 9:27) Does anything about your life indicate that you are preparing for that day? Are you living for God? Do you know anything about Him and what He requires of you in this life?
+Is it part of an endless cycle of death and birth, as the Hindus believe? 
 
-IU offers many exciting possibilities, but if you miss this, you've missed everything that matters.
+The Bible says that death is the punishment for our sin and wickedness, but it is not our final end. Hebrews 9 teaches that it is appointed for men to die once and then to face the judgment before Jesus Christ.
 
-There are two other important parts to this time in your life: long-term relationships and the kind of work you will do. You are at IU, on paper, because you are interested in a certain field of study and hope to be gainfully employed in that area at some point. But I'm going to begin with the long-term relationships because it is more important.
+Does anything about your life indicate that you are preparing for that day? Are you living for God? Do you know anything about Him and what He requires of you in this life? IU offers many exciting possibilities, but if you miss this, you've missed everything that matters.
 
-Christmas carol - scene with scrooge at the end.
+--------------
 
-Imagein you're funeral. Who would you want to be in attendance? Most likely a loving husband or wife. Your children and grandchildren. daughters and sons-in-law. Friends. How would such a scene be possible? A family is established when a man and a woman say, "I do", and commit to be together through thick and think for the rest of their lives. I know that it might sound naive and idealistic, but that's because we have lost our way. But trust me: much of your happiness in this life depends on finding a good spouse.
+I should focus this entire post on the hope we have in Jesus Christ. On the love of God through Christ.
 
-You think you have plenty of time to marry, but it's not true! Daylight is burning, boys. Ask her out.
+Jesus came to save sinners, and God sent His son to draw us near to himself.
 
-Finally, the "reason" for attending IU in the first place: intellectual growth and gainful employment. The world is filled with wonders, so pick something that makes you sit up and pay attention! If school is boring, you're doing it wrong.
+THEN, the next two posts should be about long term relationships and the work you will do.
 
-One tip: pick the good professors. That matters more than the particular subject matter. 
+--------------
+
+Discussion about Philippians 1:18-26
+
+- Being ready for heaven
+- We are like the man in ecclesiastes who has tried everything
+- 
 
 We will be at Culture Fest and Faith Fest, so please check us out!
