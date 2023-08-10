@@ -11,6 +11,8 @@ Though Jesus was murdered and buried two thousand years ago, he rose from the de
 
 > Therefore having overlooked the times of ignorance, God is now declaring to men that all people everywhere should repent, because He has fixed a day in which He will judge the world in righteousness through a Man whom He has appointed, having furnished proof to all men by raising Him from the dead.
 
+Are you ready for the return of Jesus?
+
 ## What does it mean to be "saved"?
 
 To answer that question, we have to start at the beginning. God made us, and so He rules over us. We belong to Him. Unfortunately, we are all born with a desire to live as if God doesn't exist. We want to go our own way and to do whatever pleases us. The Bible calls this rebellion against God "sin".
