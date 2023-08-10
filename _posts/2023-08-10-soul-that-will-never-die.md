@@ -9,13 +9,6 @@ tags:
   - eternity
 ---
 
-> *It is better to go to a house of mourning*
-> *Than to go to a house of feasting,*
-> *Because that is the end of every man,*
-> *And the living takes it to heart.*
-> 
-> Ecclesiastes 7:2
-
 Welcome to Indiana University! Whether you are a freshman this year or a grizzled old senior, I hope you're excited to be back in Bloomington and back at IU. There are many good reasons to attend college, and there are many good reasons to come to Indiana University. But before classes begin, you should ask yourself an important question: why are *you* here?
 
 They say that the time and money necessary to attend college is an investment in your future. You're young and you lack experience and knowledge, but you're full of hope and possibilities. Whether or not college is *actually* a good investment is a question worth tackling, but I'll leave it for another time. My question now is this: what is that future you seek? What's the goal? Where are you headed?
@@ -60,6 +53,6 @@ But you must prepare for that time when you will stand before the judge of all t
 
 Do you want to see the kingdom of God? Are you making investments to *that* end?
 
-</ hr>
+</hr>
 
-We will be at [Culture Fest](https://events.iu.edu/fye/event/1042987-culturefest) and [Faith Fest](https://events.iu.edu/fye/event/1055998-faith-fest) next week, and we'd love to meet you! Come say hi!
+*We will be at [Culture Fest](https://events.iu.edu/fye/event/1042987-culturefest) and [Faith Fest](https://events.iu.edu/fye/event/1055998-faith-fest) next week, and we'd love to meet you! Come say hi!*
