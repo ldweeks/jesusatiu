@@ -3,7 +3,6 @@ title: "A Soul That Will Never Die"
 author: Lucas Weeks
 date: 2023-08-10
 tags:
-  - iu
   - life
   - death
   - eternity
