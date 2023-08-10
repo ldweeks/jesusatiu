@@ -53,6 +53,6 @@ But you must prepare for that time when you will stand before the judge of all t
 
 Do you want to see the kingdom of God? Are you making investments to *that* end?
 
-</hr>
+<hr>
 
 *We will be at [Culture Fest](https://events.iu.edu/fye/event/1042987-culturefest) and [Faith Fest](https://events.iu.edu/fye/event/1055998-faith-fest) next week, and we'd love to meet you! Come say hi!*
