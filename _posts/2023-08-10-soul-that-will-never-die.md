@@ -33,11 +33,11 @@ Is it simply the end, like most of the atheists and naturalists believe? Like a 
 
 The Bible teaches that death is not our final end. Our church's catechism for children puts it this way, referencing God's creation of Adam and Eve:
 
-> **Q. What did God give Adam and Eve besides bodies?**
-> A. He gave them souls that would never die.
+> **Q. What did God give Adam and Eve besides bodies?**  
+> A. He gave them souls that would never die.  
 > 
-> **Q. Do you have a soul as well as a body?**
-> A. Yes, I have a soul that will never die.
+> **Q. Do you have a soul as well as a body?**  
+> A. Yes, I have a soul that will never die.  
 
 The Bible puts it this way in the book of Hebrews:
 
