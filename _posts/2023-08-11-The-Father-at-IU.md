@@ -1,4 +1,3 @@
-
 ---
 title: "The Father at IU"
 author: Jacob Gonzales
