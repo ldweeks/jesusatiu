@@ -2,10 +2,11 @@
 ---
 title: "The Father at IU"
 author: Jacob Gonzales
-date: 2023-08-10
+date: 2023-08-11
 tags:
   - iu
   - welcome
+  - father
 ---
 
 Does Indiana University have a “father”?
