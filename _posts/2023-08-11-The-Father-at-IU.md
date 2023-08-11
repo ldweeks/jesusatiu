@@ -22,9 +22,9 @@ We also know, by experience, fathers who are not our biological ones. These we o
 
 The Bible tells us that fathers exist because God is a father. In fact, God is _the_ Father from which all fatherhood derives its origin (Ephesians 3:14-15). He is the Father of the universe, creating it out of nothing. He founded the earth and built us out of the dirt to be His children. God is a good Father. 
 
-Does it make you feel uncomfortable to think about God as your father? Does it make you cringe to say the word "father" when you pray? This could be because you're projecting your sins and the sins of your father onto the true Father. It's very easy to fall into that mistake, but you must not.  It's also possible that you don’t want to submit to God, the father. You want to resist his discipline, teaching and judgement. You want to go your own way. This, too, is a grave mistake. 
+Does it make you feel uncomfortable to think about God as your father? Does it make you cringe to say the word "father" when you pray? This could be because you're projecting your sins and the sins of your father onto the true Father. It's very easy to fall into that mistake, but you must not.  It's also possible that you don’t want to submit to God, the Father. You want to resist His discipline, teaching and judgement. You want to go your own way. This, too, is a grave mistake. 
 
-Our father in heaven is not like our earthly fathers who sin and fail us in many ways. Jesus said this about our heavenly father:
+Our Father in heaven is not like our earthly fathers who sin and fail us in many ways. Jesus said this about our heavenly Father:
 
 > Ask, and it will be given to you; seek, and you will find; knock, and it will be opened to you. For everyone who asks receives, and he who seeks finds, and to him who knocks it will be opened. Or what man is there among you who, when his son asks for a loaf, will give him a stone? Or if he asks for a fish, he will not give him a snake, will he? If you then, being evil, know how to give good gifts to your children, how much more will your Father who is in heaven give what is good to those who ask Him! 
 
