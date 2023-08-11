@@ -3,13 +3,15 @@ permalink: /jesus/
 title: "Jesus"
 ---
 
-The Bible says this about Jesus:
+The Bible teaches that God became a man and walked among us. That man was Jesus:
 
 > In the beginning was the Word, and the Word was with God, and the Word was God... And the Word became flesh, and dwelt among us, and we saw His glory, glory as of the only begotten from the Father, full of grace and truth.
 
 Though Jesus was murdered and buried two thousand years ago, he rose from the dead and lives today. He will return to judge the world:
 
 > Therefore having overlooked the times of ignorance, God is now declaring to men that all people everywhere should repent, because He has fixed a day in which He will judge the world in righteousness through a Man whom He has appointed, having furnished proof to all men by raising Him from the dead.
+
+Are you ready for the return of Jesus?
 
 ## What does it mean to be "saved"?
 
