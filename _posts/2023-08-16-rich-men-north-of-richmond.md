@@ -24,7 +24,7 @@ Re-listening to *What It's Like* ten years ago made me feel very uncomfortable, 
 
 Is there a difference between the two songs? Is one of them true and one of them a lie?
 
-There are many problems with the Everlast song, not least of which is the man's entirely self-serving justification of abortion. (After all, he boasts about how he "stroked the fattest [dimes](https://www.urbandictionary.com/define.php?term=dime)/ At least a couple of times/ Before I broke their heart" just a few lines later.) But I'd like to focus on the common problem between them: bitterness, envy and self-pity. Christian men must flee from such things.
+There are many problems with the Everlast song, not least of which is the man's entirely self-serving justification of abortion. After all, he boasts about how he "stroked the fattest [dimes](https://www.urbandictionary.com/define.php?term=dime)/ At least a couple of times/ Before I broke their heart" just a few lines later. But I'd like to focus on the common problem between them: bitterness, envy and self-pity. Christian men must flee from such things.
 
 Anthony performed a [free concert](https://youtube.com/shorts/s3980umKuvY?feature=share) in front of a large crowd this past Sunday, and he took the opportunity to read the following passage from Psalm 37:
 
