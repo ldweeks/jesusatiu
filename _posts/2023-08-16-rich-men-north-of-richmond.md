@@ -12,9 +12,10 @@ No one knew anything about Oliver Anthony a week ago, but he has sure made a spl
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/sqSA-SY5Hro" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
+
 It's a powerful song that hits you right in the feels. Harriet Beecher Stowe's *Uncle Tom's Cabin* had a similar effect when slavery was still legal in this country. Upton Sinclair did the same for factory workers in the early 1900's with *The Jungle*.
 
-It got me thinking about a conversation I had years ago with a young man about a different song. This man is about twelve years younger than I am, so when he played *[What It's Like](#what-its-like)* by Everlast for me, I was already familiar with it. He was three when it came out - I had listened to it on the radio during my junior year of high school when it was popular. It is a catchy blues/rap crossover championing the cause of the down-and-out. It mentions the homeless and an abandoned young woman who gets an abortion.
+It got me thinking about a conversation I had years ago with a young man about a different song. This man is about twelve years younger than I am, so when he played *[What It's Like](https://www.youtube.com/watch?v=FMYz5SteBBY)* [(lyrics)](#what-its-like) by Everlast for me, I was already familiar with it. He was three when it came out - I had listened to it on the radio during my junior year of high school when it was popular. It is a catchy blues/rap crossover championing the cause of the down-and-out. It mentions the homeless and an abandoned young woman who gets an abortion.
 
 Everlast (Erik Schrody) is a white dude who attended Taft High School in Los Angeles at the same time that Ice Cube and at least one member of the rap group N.W.A attended. Oliver Anthony's Wikipedia page, which has only existed for three days, reports that Oliver Anthony is from Farmville, Virginia, population 7,473.
 
