@@ -55,6 +55,8 @@ Then there are those who weaponize words for their own social advancement and gl
 We Christians on campus doubt words too. We often do this, not by the words we say, but by the words that we do not say. We are silent when we should be witnesses for the Gospel. When opportunities arise for us to give a defense of the hope that is in us we don’t say anything because of our fear. We self-censor because we are afraid of being Jesus freaks. And what does our Lord say of us?
 
 > And He summoned the crowd with His disciples, and said to them, “If anyone wishes to come after Me, he must deny himself, and take up his cross and follow Me. For whoever wishes to save his life will lose it, but whoever loses his life for My sake and the gospel’s will save it. For what does it profit a man to gain the whole world, and forfeit his soul? For what will a man give in exchange for his soul? For whoever is ashamed of Me and My _words_ in this adulterous and sinful generation, the Son of Man will also be ashamed of him when He comes in the glory of His Father with the holy angels.
+> 
+> Mark 8:34-38
 
 Are we ashamed of the words of Jesus? Will we listen and obey His words or the words of men?
 
