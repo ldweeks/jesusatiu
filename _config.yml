@@ -61,7 +61,7 @@ plugins:
 author:
   name   : "Trinity Reformed Fellowship"
   avatar : "/assets/images/logo.png"
-  bio    : "A ministry of Trinity Reformed Church to the campus of Indiana University."
+  bio    : "A ministry of Trinity Reformed Church to the campus of Indiana University. Study the Bible with us at 7pm on Wednesdays at the IMU."
   links:
     - label: "Trinity Reformed Church"
       icon: "fas fa-fw fa-link"
