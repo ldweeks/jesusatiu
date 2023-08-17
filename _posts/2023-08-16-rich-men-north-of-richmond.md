@@ -81,7 +81,7 @@ I moved to Bloomington in 2002 after deciding to drop out of college for a time.
 
 The central risk for both songs is the singer’s view of himself. If Anthony learns that he is his own worst enemy, and not the rich men north of Richmond, then he will be a wise man. But if he’s content to stroke my ego and ride his popularity to the top, he may write the anthem for a civil war, but not for a return to faith and righteousness.
 
-When we give in to self-pity and bitterness, we demonstrate to the world that we have a very high view of ourselves. We don't need to do that. The Psalmist shows how to speak the truth *without* bitters. He declares that the Lord laughs at the wicked, but then he commands us to "Cease from anger and forsake wrath; Do not fret; it leads only to evildoing."
+When we give in to self-pity and bitterness, we demonstrate to the world that we have a very high view of ourselves. We don't need to do that. The Psalmist shows how to speak the truth *without* bitterness. He declares that the Lord laughs at the wicked, but then he commands us to "Cease from anger and forsake wrath; Do not fret; it leads only to evildoing."
 
 Let's be that kind of man.
 
