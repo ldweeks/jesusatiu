@@ -101,6 +101,7 @@ defaults:
       share: false
       related: true
       excerpt: false
+      permalink: /blog/:year/:month/:slug
   # _pages
   - scope:
       path: "_pages"
