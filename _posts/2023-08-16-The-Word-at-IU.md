@@ -74,4 +74,4 @@ Christianity is a religion of words because our God Jesus Christ is the Word. Ot
 >
 >The word of God in nature, in Israel, in the New Testament, in Scripture may never even for a moment be separated and abstracted from Him. God’s revelation exists only because He is the Logos.
 > 
->Herman Bavinck
+>- Herman Bavinck
