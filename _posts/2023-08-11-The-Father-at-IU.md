@@ -8,9 +8,7 @@ tags:
   - father
 ---
 
-Does Indiana University have a “father”?
-
-On January 20, 1820, the infant state of Indiana (admitted into the union in 1816) passed a law to establish a state seminary in Bloomington. One of the trustees commissioned to establish the school was a man named David H. Maxwell. A physician by trade, Dr. Maxwell became a vocal supporter for the founding of a state college in Bloomington after his move to the small town in 1819. That same year the first church in Bloomington was also founded at his personal home. Due to his substantial influence in founding the seminary, Dr. Maxwell has often been called the “father of Indiana University”.
+Does Indiana University have a “father”? On January 20, 1820, the infant state of Indiana (admitted into the union in 1816) passed a law to establish a state seminary in Bloomington. One of the trustees commissioned to establish the school was a man named David H. Maxwell. A physician by trade, Dr. Maxwell became a vocal supporter for the founding of a state college in Bloomington after his move to the small town in 1819. That same year the first church in Bloomington was also founded at his personal home. Due to his substantial influence in founding the seminary, Dr. Maxwell has often been called the “father of Indiana University”.
 
 What is a “father”?
 
