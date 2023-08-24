@@ -11,9 +11,7 @@ tags:
   - language
   - discourse
 ---
-Christianity is a religion of words.
-
-That may be an odd statement to some. Isn’t every religion a religion of words? It is true that most major religions have some texts they consider sacred. Islam has the Q’uran, Judaism the Talmud, Hinduism the Vedas, and the Buddhists the Tripitakas. Various offshoots of Christianity, such as Mormonism, too have texts they consider holy alongside the Bible. Even religions that don’t have organized sacred texts rely upon oral traditions for their practices and beliefs.
+Christianity is a religion of words. That may be an odd statement to some. Isn’t every religion a religion of words? It is true that most major religions have some texts they consider sacred. Islam has the Q’uran, Judaism the Talmud, Hinduism the Vedas, and the Buddhists the Tripitakas. Various offshoots of Christianity, such as Mormonism, too have texts they consider holy alongside the Bible. Even religions that don’t have organized sacred texts rely upon oral traditions for their practices and beliefs.
 
 Why is Christianity, with the Bible as its sole sacred text, unique in its relationship to words?
 
