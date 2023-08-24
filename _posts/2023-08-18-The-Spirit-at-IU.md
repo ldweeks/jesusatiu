@@ -11,6 +11,10 @@ tags:
   - Soul
   - Life
   - Breath
+  - water
+  - eternal life
+  - everlasting life
+  - baptism
 ---
 The word “spirit” can be such an obscure term. Merriam-Webster’s online dictionary lists fourteen definitions. Here are a few:
 
