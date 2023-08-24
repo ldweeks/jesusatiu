@@ -12,9 +12,7 @@ tags:
   - Life
   - Breath
 ---
-The word “spirit” can be such an obscure term.
-
-Merriam-Webster’s online dictionary lists fourteen definitions. Here are a few:
+The word “spirit” can be such an obscure term. Merriam-Webster’s online dictionary lists fourteen definitions. Here are a few:
 
 >1: an animating or vital principle held to give life to physical organisms
 >2: a supernatural being or essence: such as
