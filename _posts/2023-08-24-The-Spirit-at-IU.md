@@ -1,7 +1,7 @@
 ---
 title: "The Spirit at IU"
 author: Jacob Gonzales
-date: 2023-08-18
+date: 2023-08-24
 tags:
   - Spirit
   - Holy Spirit
