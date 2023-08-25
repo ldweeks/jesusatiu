@@ -20,7 +20,7 @@ The word “spirit” can be such an obscure term. Merriam-Webster’s online di
 
 > 1. an animating or vital principle held to give life to physical organisms
 > 2. a supernatural being or essence: such as
->   a. capitalized : HOLY SPIRIT
+>   a. capitalized: HOLY SPIRIT
 >   b. SOUL
 >   c. an often malevolent being that is bodiless but can become visible specifically: GHOST 
 >   d. a malevolent being that enters and possesses a human being
