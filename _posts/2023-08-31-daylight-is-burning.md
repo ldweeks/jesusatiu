@@ -21,7 +21,7 @@ But it's much worse than that, actually. College has taken quite a few hits in t
 
 This is insanity. The absolute best time to get married and have children is while you are young, not when you are in your mid-thirties. Your choice of a husband or wife will matter far more than your choice of which college to attend or which career to pick.
 
-The sexual revolution in the sixties promised to liberate sex from the confines of marriage between a man and a woman. It also preached that the sex act had no necessary connection to babies. These terrible lies have destroyed many, but they continue to be the main curriculum at Indiana University. Alfred Kinsey famously said that the only unnatural sex act is one which you cannot perform. That statement won't be found in the syllabus for any class at IU, but I believe it expresses the ethos of the institution.
+The sexual revolution in the sixties promised to liberate sex from the confines of marriage between a man and a woman. It also preached that the sex act has no necessary connection to babies. These terrible lies have destroyed many, but they continue to be the main curriculum at Indiana University. Alfred Kinsey famously said that the only unnatural sex act is one which you cannot perform. That statement won't be found in the syllabus for any class at IU, but I believe it expresses the ethos of the institution.
 
 So how do you prepare for something as quaint as marriage at a place like Indiana University?
 
