@@ -1,7 +1,7 @@
 ---
 title: "The Spirit at IU"
 author: Jacob Gonzales
-date: 2023-08-18
+date: 2023-08-24
 tags:
   - Spirit
   - Holy Spirit
@@ -18,15 +18,13 @@ tags:
 ---
 The word “spirit” can be such an obscure term. Merriam-Webster’s online dictionary lists fourteen definitions. Here are a few:
 
->1: an animating or vital principle held to give life to physical organisms
->2: a supernatural being or essence: such as
-> 	a: capitalized : HOLY SPIRIT
-> 	b: SOUL
-> 	c: an often malevolent being that is bodiless but can become visible
-> 		specifically: GHOST 
-> 	d: a malevolent being that enters and possesses a human being
-> 	3: temper or disposition of mind or outlook especially when vigorous or
-> 	animated in high spirits
+> 1. an animating or vital principle held to give life to physical organisms
+> 2. a supernatural being or essence: such as
+>   a. capitalized: HOLY SPIRIT
+>   b. SOUL
+>   c. an often malevolent being that is bodiless but can become visible specifically: GHOST 
+>   d. a malevolent being that enters and possesses a human being
+> 3. temper or disposition of mind or outlook especially when vigorous or animated in high spirits
 
 Today, in our secular and materialistic age, we often hear the word used in phrases like "school spirit". Or we speak of someone being in "good spirits".
 
