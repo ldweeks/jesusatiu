@@ -30,6 +30,8 @@ Today, in our secular and materialistic age, we often hear the word used in phra
 
 For those of us who are Christians, we believe that God is a Spirit. Specifically, we believe that God is *the* Spirit. How does Scripture help us understand this?
 
+<!--more-->
+
 The Holy Spirit, as we often call Him, makes His appearance in the first chapter of the Bible:
 
 >In the beginning God created the heavens and the earth. The earth was formless and void, and darkness was over the surface of the deep, and the Spirit of God was moving over the surface of the waters.
