@@ -1,5 +1,6 @@
 ---
 title: "The Spirit at IU"
+excerpt_separator: "<!--more-->"
 author: Jacob Gonzales
 date: 2023-08-24
 tags:
