@@ -1,5 +1,6 @@
 ---
 title: "The Spirit at IU"
+excerpt_separator: "<!--more-->"
 author: Jacob Gonzales
 date: 2023-08-24
 tags:
@@ -29,6 +30,8 @@ The word “spirit” can be such an obscure term. Merriam-Webster’s online di
 Today, in our secular and materialistic age, we often hear the word used in phrases like "school spirit". Or we speak of someone being in "good spirits".
 
 For those of us who are Christians, we believe that God is a Spirit. Specifically, we believe that God is *the* Spirit. How does Scripture help us understand this?
+
+<!--more-->
 
 The Holy Spirit, as we often call Him, makes His appearance in the first chapter of the Bible:
 

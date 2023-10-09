@@ -18,3 +18,15 @@ One of my favorite passages from the Bible is in Ephesians 3:
 I hope to know the love of Christ more each day.
 
 ## Jacob Gonzales
+
+My name is Jacob Gonzales. I was born and raised in the great state of Texas, but Bloomington is now my home.
+ 
+I’m a full-time student at Indiana University majoring in philosophy and religious studies. Some of my academic interests include history, philosophy, language, politics, law, culture, and theology. The knowledge of God is inexhaustible. His speech is proclaimed in all of His creation.
+ 
+I do a host of other things: research assistant, assistant instructor, and middle school teaching.
+ 
+I’m an active member of [Trinity Reformed Church](https://trinityreformed.org), where I’ve been attending for the last five years. I love the family of God there!
+
+One of my favorite passages is from 1 Corinthians 1:
+ 
+> Where is the wise man? Where is the scribe? Where is the debater of this age? Has not God made foolish the wisdom of the world? For since in the wisdom of God the world through its wisdom did not come to know God, God was well-pleased through the foolishness of the message preached to save those who believe. For indeed Jews ask for signs and Greeks search for wisdom; but we preach Christ crucified, to Jews a stumbling block and to Gentiles foolishness, but to those who are the called, both Jews and Greeks, Christ the power of God and the wisdom of God.
