@@ -41,7 +41,7 @@ As news of evil reaches my eyes and ears, my conscience points me to that Jesus 
 
 May we be like Him. And may He avenge all whose blood cries up from the ground.
 
-	No man is an island,
+>No man is an island,
 	Entire of itself.
 	Each is a piece of the continent,
 	A part of the main.
@@ -55,6 +55,8 @@ May we be like Him. And may He avenge all whose blood cries up from the ground.
 	Therefore, send not to know
 	For whom the bell tolls,
 	It tolls for thee.
-	
+>
 	John Donne
+
+
 
