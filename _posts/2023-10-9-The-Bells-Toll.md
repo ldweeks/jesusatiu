@@ -41,9 +41,9 @@ As news of evil reaches my eyes and ears, my conscience points me to that Jesus 
 
 Our consciences should be like His. 
 
-When we face evil, we should not be numb. When we wrestle our consciences, they should deal seriously with the reality of suffering and sin. We owe this to God and to our neighbors.
+When we face evil, we should not be numb. When we wrestle our consciences, they should deal seriously with the reality of suffering and sin. We owe this to our neighbors and to God.
 
-May God avenge all those whose blood cries up from the ground for justice.
+May He avenge all those whose blood cries up from the ground for justice.
 
 >No man is an island,
 >
