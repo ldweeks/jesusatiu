@@ -1,5 +1,5 @@
 ---
-title: The Bells Toll
+title: The Bell Tolls
 author: Jacob Gonzales
 date: 2023-10-09
 tags:
