@@ -45,35 +45,22 @@ When we face evil, we should not be numb. When we wrestle our consciences, they 
 
 May He avenge all those whose blood cries up from the ground for justice.
 
->No man is an island,
+> No man is an island,  
+> Entire of itself.  
+> Each is a piece of the continent,  
+> A part of the main.  
+> If a clod be washed away by the sea,  
+> Europe is the less.  
+> As well as if a promontory were.  
+> As well as if a manor of thine own  
+> Or of thine friend's were.  
+> Each man's death diminishes me,  
+> For I am involved in mankind.  
+> Therefore, send not to know  
+> For whom the bell tolls,  
+> It tolls for thee.  
 >
->Entire of itself.
->
->Each is a piece of the continent,
->
->A part of the main.
->
->If a clod be washed away by the sea,
->
->Europe is the less.
->
->As well as if a promontory were.
->
->As well as if a manor of thine own
->
->Or of thine friend's were.
->
->Each man's death diminishes me,
->
->For I am involved in mankind.
->
->Therefore, send not to know
->
->For whom the bell tolls,
->
->It tolls for thee.
->
->John Donne
+> John Donne
 
 
 
