@@ -39,9 +39,11 @@ And when I see the sins of monsters, my conscience is confronted by my own monst
 
 As news of evil reaches my eyes and ears, my conscience points me to that Jesus who was crucified outside of Jerusalem so long ago. What weight of guilt the second man took upon Himself for violent sinners. Never has such innocent blood been shed. And not for Himself, but for others. He had no desensitized conscience. He swallowed violence, suffering, terror, and death. His arms and legs, which were only used for good, were nailed to the cross for the weak and the vulnerable. He bled. He shed tears. He grieved. He mourned. He lamented. He did not forget one face.
 
-Our consciences should be like His.
+Our consciences should be like His. 
 
-May He avenge all those killed whose blood cries up from the ground.
+When we face evil, we should not be numb. When we wrestle our consciences, they should deal seriously with the reality of suffering and sin. We owe this to God and to our neighbors.
+
+May God avenge all those whose blood cries up from the ground for justice.
 
 >No man is an island,
 >
