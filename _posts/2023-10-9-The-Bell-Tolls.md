@@ -5,7 +5,6 @@ date: 2023-10-09
 tags:
   - suffering
   - sin
-  - israel
   - women
   - children
   - violence
@@ -24,6 +23,7 @@ tags:
   - technology
   - globalization
   - death
+  - Israel
 ---
 It's easy to become desensitized to violence, suffering, and death. This, naturally, can happen to someone in the midst of horrible evil. In those cases, though, desensitization doesn't necessarily lead to a numbing of the conscience but instead can become a grace that allows one to bear the weight of tremendous suffering. How else could one live in the midst of war, violence, terror, and sin? I don't fault anyone for this type of "desensitization", if we can call it that. This state typically drives people to good works, to acts of mercy and love in the face of oppression, persecution, and violence. It can be sacrificial for the sake of goodness. It can bear the sword for the destruction of evil and for justice. 
 
