@@ -48,9 +48,9 @@ Throughout the sermon on the mount, Jesus teaches that God's law is good.
 
 Next, he teaches that we *are* required to obey it, down to our thoughts and intentions. Murder itself is sinful, of course, but the anger that burns within us, and which leads to the murder, is the root of the matter. Jesus teaches that we are guilty of adultery if we lust after a woman in our hearts.
 
-Finally, he's teaching us the extent to which we are supposed to strain and work to obey God's law. We should rather be willing to part with an eye or a hand than lose the battle to sin.
+Finally, he's teaching us the extent to which we are supposed to strain and work to obey God's law. We should be willing to part with an eye or a hand rather than lose the battle with sin.
 
-As a good little Evangelical, every bone in my body wants wants to qualify the previous paragraph. At this point in the post, I'm supposed to talk about how the law leads us to despair of our own ability and to rest in the work of Jesus Christ on our behalf. I'm supposed to explain precisely how it is that Jesus didn't *really* mean that we should cut off our hand or pluck out our eye. 
+As a good little Evangelical, every bone in my body wants to qualify the previous paragraph. At this point in the post, I'm supposed to talk about how the law leads us to despair of our own ability and to rest in the work of Jesus Christ on our behalf. I'm supposed to explain precisely how it is that Jesus didn't *really* mean that we should cut off our hand or pluck out our eye. 
 
 Relax. Take a chill pill.
 
