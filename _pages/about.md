@@ -7,7 +7,7 @@ title: "About"
 
 Trinity Reformed Fellowship exists to reach students on the campus of [Indiana University](https://bloomington.iu.edu) with the love of Jesus. We are a ministry of [Trinity Reformed Church](https://trinityreformed.org), a Reformed Protestant church located on the west side of Bloomington, Indiana. We have lively worship on Sunday mornings and regular lunches for students after church.
 
-**Sunday morning services are held at 9am and 11am.** Please [get in touch](https://trinityreformed.churchcenter.com/people/forms/284770) if you'd like a ride!
+**Sunday morning service is held at 10:30am.** Please [get in touch](https://trinityreformed.churchcenter.com/people/forms/284770) if you'd like a ride!
 
 The best way to know what we're about is to join us for worship on Sunday morning or for college group Bible study on campus. We hope you will!
 
