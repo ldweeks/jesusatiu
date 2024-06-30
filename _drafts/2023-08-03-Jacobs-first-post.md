@@ -6,6 +6,3 @@ tags:
   - iu
   - welcome
 ---
-
-*This* is a **post**.
-

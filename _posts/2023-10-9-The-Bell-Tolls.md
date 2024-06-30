@@ -10,21 +10,27 @@ tags:
   - violence
   - terror
   - murder
-  - Hamas
-  - Palestine
-  - Bodies
-  - Body
-  - Bloodguilt
-  - Communism
-  - Nationalism
-  - Fascism
-  - Islam
-  - Christianity
   - technology
   - globalization
   - death
-  - Israel
+  - bodies
+  - body
+  - bloodguilt
+  - communism
+  - fascism
+  - nationalism
+  - palestine
+  - islam
+  - christianity
+  - israel
+  - hamas
 ---
+If you've spent any time online recently, then you most likely have seen something of the horrific terrorist attack on Israel. Some side with Israel. Some side with Palestine. Others, maybe surprising to you, side with Hamas. Maybe you're even seen the gut wrenching videos of violence that were uploaded by the terrorists themselves to celebrate their brutality. 
+
+How are Christians to think about and react to this? 
+
+You are a student at a university in the United States. Although Bloomington has its problems, like every city, we generally aren't confronted with violence and suffering like that
+
 It's easy to become desensitized to violence, suffering, and death. This, naturally, can happen to someone in the midst of horrible evil. In those cases, though, desensitization doesn't necessarily lead to a numbing of the conscience but instead can become a grace that allows one to bear the weight of tremendous suffering. How else could one live in the midst of war, violence, terror, and sin? I don't fault anyone for this type of "desensitization", if we can call it that. This state typically drives people to good works, to acts of mercy and love in the face of oppression, persecution, and violence. It can be sacrificial for the sake of goodness. It can bear the sword for the destruction of evil and for justice. 
 
 But there is a wicked conscience that is desensitized and numbed by apathy and moral relativism. This is the worst state a person can find themselves in. This is the conscience that cannot grieve at the murder of children at the abortion clinic. This is the conscience that doesn't flinch when the poor are robbed and exploited. This is the conscience that cannot mourn when it encounters violence and war. This is the conscience that winks at women and men whose bodies are commodified as merchandise on the sexual marketplace. This is the conscience that feels no guilt when children are castrated in the name of progress and gender ideology. This is the conscience that rejoices in bloodguilt and blood money. This is the conscience that feels no remorse for harm it does to others. It is a conscience that easily kills, without shedding a tear, in the name of anything it can capitalize on, whether it be the proletariat, the rich, the nation, the family, the religion, the individual, the rights, the environment, the revolution, the liberation, the freedom, or the ideology. It is a conscience that has nothing to do with truth telling, with living in reality, with morality, or with God. This desensitized conscience is not tribal. It is the universal property of all men under the fall of Adam, who have grown so accustomed to the curse that they can no longer feel their own evil or the evil of others. It is a conscience that is numb to conviction and sin and the law of God.
