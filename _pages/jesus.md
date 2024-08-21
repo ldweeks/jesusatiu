@@ -22,3 +22,7 @@ God is perfectly good, and so He condemns us for our sin. We live under God's ju
 God loves the world He created, and so He sent His own divine Son – the man, Jesus Christ – into the world to save us. Unlike us, Jesus lived a perfect, sinless life. He didn't rebel against God, but he was tortured and executed on a Roman cross as a *substitute* for us. God accepted Jesus' death as payment for our sins and vindicated him by raising him from the dead. Because Jesus died in our place, we can be forgiven for our sins.
 
 So how do we "get saved"? By turning to God in humility and asking for forgiveness for our rebellion against Him. That's for starters. Then we trust in Jesus as our resurrected ruler and savior. We trust His promise that we are freely and completely forgiven in Him. And then we go on to live the rest of our lives with Jesus as our Lord.
+
+---------------
+
+*Want to learn more? I'd love to talk with you about Jesus. Please [get in touch](https://trinityreformed.churchcenter.com/people/forms/284770)!*

@@ -5,7 +5,7 @@ title: "Events"
 
 ## End of Summer Cookout!
 
-**Join us after church this Sunday (08/20/23) for our college group kickoff!** We will be grilling brats and enjoying the end of summer before diving into a new semester. 
+**Join us after church this Sunday (08/25/24) for our college group kickoff!** We will eat together and enjoy the end of summer before diving into a new semester. 
 
 Need a ride? No problem! Just [let us know](https://trinityreformed.churchcenter.com/people/forms/284770).
 
